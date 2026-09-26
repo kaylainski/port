@@ -1,5 +1,5 @@
-this is strictly for kayla b, kaylainski or kaleidoscopic302's use
-for my portfolio assets, media, html, and other important coding
-photos uploaded must have a url
-everything needs to be sorted so that it is simple to access all portfolio media and assets
-good luck!
+this is a resp. for my portfolio code stuff
+uhhh idk do what you want with it i guess
+there's some fonts and under really important code r scripts and embeds yadda yadda
+my lockbox is just personal photos or bs with more code/embeds. take a look if u rlly wanna. not
+thanks yayayayayyaya
